@@ -8,38 +8,38 @@
  <img width="1000" src="https://i.imgur.com/SHIShem.jpeg"
  </p>
  <p align="center"> 
- <img width="600" src="https://64.media.tumblr.com/bd1c7c76589cf4b1154e9c24775f3e97/08b6024acb610772-33/s400x600/ec46984004365b494395f1b069126afd192d1132.gifv"
+ <img width="600" src="https://64.media.tumblr.com/53db0a2bbab91e13cd549a60455a9877/4f7dfb36276881c0-b8/s400x600/c658c6e2e88354aab81541f439fc810c3ea5ca85.gifv"
  </p>
   <p align="center"> 
-  <strong>${\color{blue}➤}$⠀feel free to int</strong>, i dont bite and i'm up for conversations
+  <strong>${\color{red}➤}$⠀feel free to int</strong>, i dont bite and i'm up for conversations
    </p>
   <p align="center"> 
   kiss/boop & c+h is okay, idm at all
    </p>
   <p align="center"> 
-  <strong>${\color{blue}➤}$⠀whisper 2 int</strong>, im offtab alot or just not paying attention
+  <strong>${\color{red}➤}$⠀whisper 2 int</strong>, im offtab alot or just not paying attention
    </p>
   <p align="center"> 
-  <strong>${\color{blue}➤}$⠀i dont talk much</strong>, im not talkative and i often dont int first due to anxiety
+  <strong>${\color{red}➤}$⠀i dont talk much</strong>, im not talkative and i often dont int first due to anxiety
      </p>
   <p align="center">
-  <strong>${\color{blue}➤}$⠀pls sign my atabook!!,</strong> if you want to ofc ^_^
+  <strong>${\color{red}➤}$⠀pls sign my atabook!!,</strong> if you want to ofc ^_^
   </p>
   <p align="center">
- <img width="25" src="https://64.media.tumblr.com/07a02480e07bf5757cb5b3a27b8d1bfb/f4d52b788dc9d5fb-07/s75x75_c1/4ca2bacdea9e0728e77fe78e72b66c3c81e8d566.gifv"
+ <img width="25" src="https://64.media.tumblr.com/6ce0898caba9e05e492d5ec4be29d27d/a324df92b7afeba1-ea/s75x75_c1/276e87e823ea1e4065f03b26959f298e11abc490.gifv"
  </p>
  cringe & free ♡( ◡‿◡ )
  </p>
   <p align="center"> 
-<a href="https://thedesires.atabook.org/">ATABOOK</a> ${\color{blue}.}$ <a href="https://bundlrs.cc/kusuo.saiki">BUNDLRS</a> ${\color{blue}.}$ <a href="https://listography.com/thedesires">INTERESTS</a>
+<a href="https://thedesires.atabook.org/">ATABOOK</a> ${\color{red}.}$ <a href="https://bundlrs.cc/kusuo.saiki">BUNDLRS</a> ${\color{red}.}$ <a href="https://listography.com/thedesires">INTERESTS</a>
   </p>
   <p align="center">
- <img width="35" src="https://64.media.tumblr.com/1afddb70392f6d77a04061f6f2f74aff/2548834662a1f658-67/s75x75_c1/abff121fa1c8d18f60e4bb90df6c9c4dfac57e23.gifv"
- </p>
- <img width="35" src="https://64.media.tumblr.com/dd391fbd025b34ce969370a10706e18e/6caf58e0782c326d-a1/s75x75_c1/04d3dd7bf8d2d4d6a74bf4dc58fa49cb0a4ff90d.gifv"
+ <img width="35" src="https://64.media.tumblr.com/e8876be0b590c631b4c3563d91f88a0d/612fb83518159c9c-9e/s75x75_c1/8f705f2f3d8625563f345b52b4701507117b88cf.gifv"
   </p>
+  <img width="35" src="https://64.media.tumblr.com/86ab758692a4d3f37b1c4b263e1a926f/23c9d1d5cf9aada9-4f/s75x75_c1/75d92dc431135c6d945499604f4100127b934ae8.gifv"
+ </p>
   <p align="center"> 
- <img width="600" src="https://64.media.tumblr.com/bd1c7c76589cf4b1154e9c24775f3e97/08b6024acb610772-33/s400x600/ec46984004365b494395f1b069126afd192d1132.gifv"
+ <img width="600" src="https://64.media.tumblr.com/53db0a2bbab91e13cd549a60455a9877/4f7dfb36276881c0-b8/s400x600/c658c6e2e88354aab81541f439fc810c3ea5ca85.gifv"
   </p>
   <p align="center">
  </p>
@@ -138,7 +138,7 @@
 
 
 <p align="center">
- <img width="35" src="https://64.media.tumblr.com/989e97a17d7b6979e2b35561639ea5d4/2548834662a1f658-77/s75x75_c1/1a80d7de0573c02f5a1971c218b8ab34118cf704.gifv"
+ <img width="35" src="https://64.media.tumblr.com/786d66ba80170e41e93d01226694db95/1bf10d2268d0dc71-0d/s75x75_c1/1ddf59bfc3759afced8d6148538f8acd46486b81.gifv"
  </p>
 
  
@@ -204,6 +204,6 @@
  <img width="2000" src="https://gifcity.carrd.co/assets/images/gallery40/0a24ec5b.gif?v=7421cb56"
  <p/>
 <p align="center">
-<img width="300" src="https://i.imgur.com/NzGsSZB.png"
+<img width="300" src="https://i.pinimg.com/736x/a5/16/e5/a516e50f86b0abb424c066742bfb381f.jpg"
 <p/>
 
