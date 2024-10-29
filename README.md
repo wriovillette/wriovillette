@@ -22,6 +22,7 @@
   <p align="center"> 
   <strong>${\color{red}➤}$⠀i dont talk much</strong>, im not talkative and i often dont int first due to anxiety
      </p>
+  <p align="center">
   <strong>${\color{red}➤}$⠀i got flagged for not paying 24$/month</strong>, so u wont see me as often
   </p>
   <p align="center">
