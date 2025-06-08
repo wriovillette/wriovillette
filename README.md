@@ -1,7 +1,7 @@
 < align="center">
 <h4 align="center"
  
-![](https://komarev.com/ghpvc/?username=thedesires&label=𐙚+profile+views+++&color=blue)
+![](https://komarev.com/ghpvc/?username=thedesires&label=𐙚+faggots+++&color=blue)
 
  </h4>
 <p align="center">
@@ -17,5 +17,5 @@
  cringe & free ♡( ◡‿◡ )
  </p>
   <p align="center"> 
-<a href="https://thedesires.atabook.org/">ATABOOK</a> . <a href="https://bundlrs.cc/kusuo.saiki">BUNDLRS</a> . <a href="https://listography.com/thedesires">INTERESTS</a>
+<a href="https://thedesires.atabook.org/">ATABOOK</a> . <a href="https://bundlrs.cc/makotoyuki">BUNDLRS</a> . <a href="https://listography.com/raidante">INTERESTS</a>
 
